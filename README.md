@@ -1,1 +1,1 @@
-# inspiring-meassages
+# inspiring-messages
